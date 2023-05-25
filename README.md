@@ -13,8 +13,6 @@
 
 ### Informasi
 **Aplikasi ini tidak dipublikasikan, silahkan kontak developer untuk info lebih lanjut**
-  
-#### Lihat aplikasi disini : [homekasi](https://homekasir.rechmand.id)
 
 *"By Rechmand M"*
 
